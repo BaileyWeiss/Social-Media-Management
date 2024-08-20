@@ -2,7 +2,7 @@
 
 ## Bailey Weiss
 
-*My Works:*
+*My Work*
 
 *Note: Please note that any specific locations or addresses mentioned in the social media content have been replaced with fictional addresses for privacy and security purposes.*
 
