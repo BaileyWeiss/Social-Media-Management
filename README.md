@@ -6,14 +6,14 @@
 
 *Note: Please note that any specific locations or addresses mentioned in the social media content have been replaced with fictional addresses for privacy and security purposes.*
 
-1. [Fashion Week: Instagram Post](source/fashion/1.png)(source/fashion/2.png)
+1. [Fashion Week: Instagram Post](source/fashion.pdf)
 
-2. [](source/)
+2. [How To Reduce Under Eye Creasing: Instagram Story](source/makeup.mp4)
 
-3. [](source/)
+3. [PrehistoricPalsToys: Instagram Gallery](source/gallery.pdf)
 
-4. [](source/)
+4. [TattooAlley Shop Friday the 13th: Instagram Post](source/tattoos.pdf)
 
-5. [](source/)
+5. [Editorial Photography: Magazines, Websites, etc.](source/photography.pdf)
 
-6. [](source/)
+6. [When Should My Kid Stop Sleeping With Stuffed Animals: Informational Instagram Post](source/parents.pdf)
